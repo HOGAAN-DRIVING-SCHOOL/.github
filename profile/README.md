@@ -15,7 +15,7 @@ Inaan abuurno darawalo mas'uul ah, si wadooyinka Soomaaliya loo helo amaan iyo m
 - Gawaari casri ah
 - Shahaado rasmi ah
 
-## Xidhiidh
-- Foon / WhatsApp: +252 61 369 3844
+## nagala soo Xidhiidh
+- phone / WhatsApp: +252 61 369 3844
 - TikTok: [@hogaan.driving.sch](https://www.tiktok.com/@hogaan.driving.sch)
 - Goobta: Muqdisho, Deg. Hodan – Dufle Hospital
