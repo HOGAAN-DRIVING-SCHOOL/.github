@@ -17,6 +17,6 @@ Inaan abuurno darawalo mas'uul ah, si wadooyinka Soomaaliya loo helo amaan iyo m
 
 ## nagala soo Xidhiidh
 - phone / WhatsApp: +252 61 369 3844
-- TikTok: [@hogaan.driving.sch](https://www.tiktok.com/@hogaan.driving.sc?_r=1&_t=ZS-9BQnHACZ43K)
+- TikTok: [@hogaan.driving.sch]([https://www.tiktok.com/@hogaan.driving.sc?_r=1&_t=ZS-9BQnHACZ43K](https://www.tiktok.com/@hogaan.driving.sc?_r=1&_t=ZS-9BQnHACZ43K))
 - Goobta: Muqdisho, Deg. Hodan – Dufle Hospital
 - website: https://hogaan-driving-school.github.io/hogaan-driving-school/
